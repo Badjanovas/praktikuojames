@@ -1,0 +1,1 @@
+idedam pakeitimu
